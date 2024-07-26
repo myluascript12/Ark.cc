@@ -1,0 +1,1 @@
+this is a shit non skidded besides the ui libary dahood script that supports almost every dahood game and arsenal and rivals and a whole bunch of other games the only thing it doesnt support is games with custom player models
